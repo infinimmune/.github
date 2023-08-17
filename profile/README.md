@@ -18,3 +18,14 @@ We will advance drugs both with pharmaceutical partners and in our pipeline, whi
 ## What else should I know about you?
 
 If you'd like to learn more, please drop by [our website](https://infinimmune.com) or our [job board](https://www.notion.so/infinimmune/Careers-Infinimmune-dd6d8a3dcd2643cb95c854cf29ae1902?pvs=4). We hope you'll say hi!
+
+> _“I don’t feel I’m a very creative scientist. I wish I could be more creative. But if you force me to think about it… I can come up with 3 simple concepts:_
+> 
+> _1. You have to be very curious about something._
+> 
+> _2. You have to have an unfailing urge to address the question you have._
+> 
+> _3. I think it helps to try to combine knowledge in at least two different fields where people don’t necessarily interact._ 
+> _Those are the three things that come to me as the way to be a little more creative.”_
+>
+> **— Susumu Tonegawa**, 1987 recipient of the Nobel Prize for Physiology or Medicine for the discovery of V(D)J recombination, one of the genetic mechanisms of antibody diversification.
